@@ -1,3 +1,7 @@
+
+My discord: https://discord.gg/e9kB9e7
+
+
 New Coin VRP:
 
 Features:
